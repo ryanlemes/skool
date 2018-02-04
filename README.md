@@ -1,1 +1,1 @@
-skool
+Skool
